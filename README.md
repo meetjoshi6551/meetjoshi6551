@@ -1,5 +1,6 @@
-### Hi there
-**meetjoshi6551/meetjoshi6551** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[### Hi there
+https://www.youtube.com/channel/UC8bJhrJY8Dn8PB8EhlM7OXg
+
 
 Here are some ideas to get you started:
 
